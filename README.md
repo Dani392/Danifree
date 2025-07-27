@@ -1,5 +1,5 @@
 # Danifree
 
-Hola Mami bonita 
+Hola Mami !!
 
-¡¡¡Te quiero mucho!!!
+te quiero !
